@@ -1,0 +1,1 @@
+Halo Bang aku Ananda Arti Widigdo, bisa dipanggil Nanda atau Nanda
